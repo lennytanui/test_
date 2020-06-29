@@ -1,4 +1,4 @@
-# Hi, we vibing!
+# cause I can
 
 # hello you Earthling
 
