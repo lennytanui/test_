@@ -1,4 +1,4 @@
-# Hi, we vibing!
+# Hi, why you looking at my code.
 
 # hello you Earthling
 
